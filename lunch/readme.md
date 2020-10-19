@@ -1,6 +1,6 @@
 Bacon Lettuce Tomato Sandwich 
 
-## Servings: 
+## Servings: 5
 
 ## Time to prepare: 
 
