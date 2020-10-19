@@ -2,9 +2,9 @@ Breakfast Omelette
 
 ## Servings: 
 
-## Time to prepare: 
+## Time to prepare: 10-15 minutes 
 
-## Ingredients:
+## Ingredients: 
 
 
 ## Equipment needed:
