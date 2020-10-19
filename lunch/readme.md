@@ -4,7 +4,7 @@ Bacon Lettuce Tomato Sandwich
 
 ## Time to prepare: 
 
-## Ingredients:
+Ingredients: 3 strips of bacon, 3 roma tomatoes, 2 leaves of lettuce, 1 tbsp of mayo
 
 
 ## Equipment needed:
