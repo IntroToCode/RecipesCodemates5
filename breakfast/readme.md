@@ -1,6 +1,6 @@
 Breakfast Omelette 
 
-## Servings: 
+## Servings: 5
 
 ## Time to prepare: 
 
