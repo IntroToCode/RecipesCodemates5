@@ -1,4 +1,4 @@
-# Replace with recipe name
+# Surf and Turf
 
 ## Servings: 5
 
@@ -12,7 +12,10 @@
 
 ## Steps for preparation:
 
-
+1. Find cow
+2. Cook cow
+3. Add shrimp and lobster
+4. Eat
 
 ### Notes:
 
