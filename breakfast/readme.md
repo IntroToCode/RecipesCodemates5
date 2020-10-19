@@ -7,14 +7,14 @@ Breakfast Omelette
 ## Ingredients:
 
 
-## Equipment needed:
+## Equipment needed:Pan, Spatula, Mixing Bowl, Whisk, Plates, Forks, Knives, Napkins, Fancy Tuxedo 
 
 
 ## Steps for preparation:
 
 
 
-### Notes:
+### Notes: Black Tie Affair :smile: 
 
 
 
