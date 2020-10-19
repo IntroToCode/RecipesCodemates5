@@ -4,8 +4,8 @@ Breakfast Omelette
 
 ## Time to prepare: 10-15 minutes 
 
-## Ingredients: 
 
+Ingredients: 3 eggs, 1 tbsp of butter, 1/8 cup shredded cheese
 
 ## Equipment needed:
 
