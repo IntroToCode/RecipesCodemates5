@@ -1,4 +1,4 @@
-# Replace with recipe name
+Spaghetti with Meatballs
 
 ## Servings: 5
 
@@ -7,7 +7,7 @@
 ## Ingredients:
 
 
-## Equipment needed:
+## Equipment needed: Pot, Strainer, Ladle, Spatula, Pan, Knife, Cutting Board, Plates, Utensils
 
 
 ## Steps for preparation:
