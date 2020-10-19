@@ -7,7 +7,7 @@ Bacon Lettuce Tomato Sandwich
 ## Ingredients:
 
 
-## Equipment needed:
+## Equipment needed: Kitchen Knife, Cutting Board, Plates, Utensils
 
 
 ## Steps for preparation:
