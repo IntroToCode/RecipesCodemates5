@@ -7,7 +7,7 @@ Breakfast Omelette
 
 Ingredients: 3 eggs, 1 tbsp of butter, 1/8 cup shredded cheese
 
-## Equipment needed:
+## Equipment needed:Pan, Spatula, Mixing Bowl, Whisk, Plates, Forks, Knives, Napkins, Fancy Tuxedo 
 
 
 ## Steps for preparation:
@@ -19,7 +19,7 @@ Ingredients: 3 eggs, 1 tbsp of butter, 1/8 cup shredded cheese
 6. Congratulations, it's an omelette
 
 
-### Notes:
+### Notes: Black Tie Affair :smile: 
 
 
 
