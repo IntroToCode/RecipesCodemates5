@@ -20,7 +20,8 @@ Spaghetti with Meatballs
 6. Add store-bought sauce
 
 ### Notes:
-
+Even greater if you put cheese on top of the spaghetti!
+Perferct meal to prepare for a quick bite for yourself or a lunch for large group family or friends
 
 
 ### Codemates #
