@@ -21,7 +21,7 @@ Spaghetti with Meatballs
 
 ### Notes:
 Even greater if you put cheese on top of the spaghetti!
-Perferct meal to prepare for a quick bite for yourself or a lunch for large group family or friends
+Perferct meal to prepare for a quick bite for yourself or a dinner for large group family or friends
 
 
 ### Codemates #
