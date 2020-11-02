@@ -2,7 +2,7 @@ Spaghetti with Meatballs
 
 ## Servings: 5
 
-## Time to prepare: 
+## Time to prepare: 20 minutes
 
 ## Ingredients:1 package of Costco brand spaghetti, 1 tub of Prego brand marinara sauce, 1 lb of ground mystery meat
 
